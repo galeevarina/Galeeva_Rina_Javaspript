@@ -1,1 +1,0 @@
-# Galeeva_Rina_Javaspript
